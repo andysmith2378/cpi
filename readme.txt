@@ -1,0 +1,1 @@
+Ratio of Consumer Price Index to Average Earnings, Australia 1972 - 2022
